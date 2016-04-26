@@ -1,0 +1,27 @@
+Have you ever given blood?
+
+I think everyone knows that it's important, but I suspect not everyone knows just how important it is. As a nurse, the desire to give blood is almost second nature, just a given, but maybe that is because I have nursed patients who need the blood. I've been the one waiting, pacing around the corridors waiting for the supplies to be restocked, which in essence, is waiting for someone like you or me to give blood. If you have never seen the urgency, then this is something that is easy to throw in the 'out of sight, out of mind' basket, and more so, if there are any sort of fears of the unknown attached to the whole process, why on earth would you take time out of your busy day, to do something scary?
+
+
+
+So, what is it actually like to give blood?
+
+I am a nurse, yes, but like any other sane person I hate needles (in fact, my hands and feet got so nervous-sweaty with my last donation that I had some very concerned staff members, worrying if I was actually OK). But, the needle is such a small part of the whole process. When you arrive, everyone is very welcoming, you can't say that about many other places we frequent in day to day life! They ask you many basic questions, and then they will direct you to a private booth where you confidentially fill out a string of more in-depth questions relating to past travel and where you have lived, to disease status, and your sexual history. Every single question has a purpose. Last week when I donated in Montreal, these questions were all displayed and answered on their very fancy and new tablets they had just received, no more paper forms!
+
+There may now be a little more waiting, perfect time to run for a nervous wee, and wipe off some sweaty palms!!
+
+You will then be called into a private room with a nurse, or nurse assistant. Here, they will run through some more questions, but many of them are just verifications of what you previously answered. Again, everything has a purpose in the process. You will have you blood pressure, heart rate, and temperature taken (all elevated due to nerves...geez, settle down already!!) and you will get a finger prick needle, the same as a diabetic uses several times a day, and this will check your blood counts and ensure a donation can go ahead. I was actually curious about this little test as I haven't had any blood counts done since I've started running, which can sometimes alter the result.
+
+Next, you will be given a patient armband, much the same as you would get in hospital, and you are taken through to the comfiest reclining chairs you'll ever sit on. You will be in a room with others doing the same thing, so if you don't like seeing needles, or the blood products in the bags, just beeline it for your chair with your head down. Most of the time the staff are excellent at covering the bags of blood and the needles, so a lot of the process is out of sight.
+
+Just like with any blood test, you will squeeze a stress ball, and have a torniquet applied to your arm (they will ask you which arm you prefer, but sometimes they will just need to go with the arm that has the most accessible veins). They will ask you to look away, and there are numerous TVs on display to be utilised for distraction, then they will warn of a small scratch. A scratch is exactly what it feels like, uncomfortable but not painful! And remember I am also somewhat needle-phobic. I just thought about the fact that i was choosing to do this, whereas the people it would be helping definitely were NOT choosing their situation!
+
+They needle remains in place for around 10-15 minutes, but I don't rememeber having discomfort in this time. The nurse sits next to you, distacts you, reminds you to squeeze the stress ball to ensure the blood pumps, and they constantly ensure you are feeling well. Then, before you know it, they will remove the needle and tape you up. You remain seated for 5 minutes while applying pressure and they continue to observe you and how you are feeling.
+
+Now it's time for some delicious snacks which are all served by a delightful volunteer Granny who is giving up her time to look after you. Maybe not the greatest food selection on offer, with various cookies and cakes and sanwhiches, but I found some fruit and cranberries and had a lovely coffee.
+
+This last doantion, I donated at around lunch time, and for the rest of the day I was feeling fine but I just had decreased energy. It was a hot day however, and I had run a tough 10k that morning, but I was able to carry on as normal, and headed out that evening for dinner and a walk around some markets. This following week, my runs have felt more arduous, but these effects are not something you would notice in everyday life, and it was nothing to stop me running, I just felt a little more sluggish.
+
+So there you have it. A long post on the easy process of giving blood. If you are an acceptable candidtate, but have just never gotten around to it, I highly encourage you to do so. It is a very easy and rewarding process, and you will be treated like royalty for the hour or so you are there. Concentrate on the people who you will be helping, and know that in a heartbeat, you could be in their situation and praying for someone, just like you, to go out and donate blood.
+
+Meg's Picture
